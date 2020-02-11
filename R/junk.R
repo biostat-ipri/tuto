@@ -1,1 +1,1 @@
-lhasdglvhdbafjzhvbldjzb ;
+jubk = function(){}

@@ -1,3 +1,1 @@
-lhasdglvhdbafjzhvbldjzb ;
-
-lksajdhf;kajdshf;v
+jubk = function(){}
